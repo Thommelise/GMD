@@ -5,7 +5,7 @@ Semester GMD Projekt
 
 
 Youtube
-link to my game - https://youtu.be/N5UNoeP-UaQ
+link to my game - https://www.youtube.com/watch?v=Hh2Lxv_mzlA&t=8s
 
 Assets:
 
